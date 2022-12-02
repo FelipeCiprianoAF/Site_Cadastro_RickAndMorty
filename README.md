@@ -1,3 +1,3 @@
 Dupla:
-Felipe Cipriano de Andrade Ferreira
+Felipe Cipriano de Andrade Ferreira e
 Andrielly Aparecida Dutra Freitas
